@@ -97,8 +97,8 @@ Other   28 hrs 8 mins   ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰�
 ```mermaid
   graph TD;
       Wake-->Telegram;
-      Telegram-->Office;
-      Office-->Telegram;
+      Telegram-->School;
+      School-->Telegram;
       Telegram-->Home;
       Home-->Telegram;
       Telegram-->Sleep;
