@@ -23,21 +23,21 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Rama Rama Krishna Krishna &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176470-rama-rama-krishna-krishna-2009-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=356845)
-- [[HDR10-Dovi|60FPS] Leo &lpar;2023&rpar; 1080p NF WEB.DL DDP5.1 Atmos Esubs x265 HEVC - 13.9 GB | 3.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176464-hdr10-dovi60fps-leo-2023-1080p-nf-webdl-ddp51-atmos-esubs-x265-hevc-139-gb-31-gb/&do=findComment&comment=356844)
-- [Endrendrum Punnagai &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.7GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176469-endrendrum-punnagai-2013-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-57gb-gdflix/&do=findComment&comment=356843)
-- [🔰Vel &lpar;2007&rpar; AYN DVD9 Tamil - &lpar;DOLBY DIGITAL 5.1 &amp; DTS&rpar; ESUBS - 7GB](https://www.1tamilmv.phd/index.php?/forums/topic/155255-%F0%9F%94%B0vel-2007-ayn-dvd9-tamil-dolby-digital-51-dts-esubs-7gb/&do=findComment&comment=356842)
-- [Sabapathy.1941.Tamil.576p.AMZN.AVC.AAC2.0 - 2.8GB](https://www.1tamilmv.phd/index.php?/forums/topic/176453-sabapathy1941tamil576pamznavcaac20-28gb/&do=findComment&comment=356841)
+- [Vallabha &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.5GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177713-vallabha-2006-telugu-dvd9-untouched-480p-dd51-448kbps-75gb-esub/&do=findComment&comment=360522)
+- [Pichaikkaran &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 3.6GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177717-pichaikkaran-2016-tamil-true-web-dl-1080p-avc-untouched-ddp51-36gb-ue/&do=findComment&comment=360521)
+- [The.Descent.Part.2.2009 DD2.0 Tamil +DD2.0 Telugu +AAC 2.0 Hindi +DTS English 1080p Blu-Ray REMUX VC-1.DTS-HD.MA.5.1 first on Net [G-Drive]](https://www.1tamilmv.world/index.php?/forums/topic/152347-thedescentpart22009-dd20-tamil-dd20-telugu-aac-20-hindi-dts-english-1080p-blu-ray-remux-vc-1dts-hdma51-first-on-net-g-drive/&do=findComment&comment=360520)
+- [The Descent Part 2 &lpar;2009&rpar; &lpar;HD+ Original Audios&rpar; - [1080p - x264 - &lpar;Tamil + Hindi + Bengali + English&rpar; - 5.6GB] - ESub - Direct Download](https://www.1tamilmv.world/index.php?/forums/topic/172517-the-descent-part-2-2009-hd-original-audios-1080p-x264-tamil-hindi-bengali-english-56gb-esub-direct-download/&do=findComment&comment=360519)
+- [Expats &lpar;2024&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Mal + Kan+ Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.5GB &amp; 800MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177526-expats-2024-s01-ep-01-03-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-mal-kan-eng-dd51-192kbps-4gb-25gb-800mb-esub/&do=findComment&comment=360518)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Feeling alone just with memories 😶😐#KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=e6Us2Z5sKAY)
-- [പാട്ടുപെട്ടി | Paattupetti Vol 35 | Malayalam Film Songs](https://www.youtube.com/watch?v=cdk75VEtX2g)
-- [Christian songs status](https://www.youtube.com/watch?v=mLggOHi6XM8)
-- [KARAOKE | താരങ്ങൾ പുഞ്ചിരി തൂകിയ രാത്രി | ROY PUTHUR | ROJI PONNACHAN #christmas2023 #royputhur](https://www.youtube.com/watch?v=vPQ8PCwVDDU)
-- [old memories with people 🙂😓 #KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=myslhw3TTY4)
-- [Thanga Magan   Baashha   Deva   Hi Res Audio](https://www.youtube.com/watch?v=ZZr0Yw1ylYE)
+- [Njan Chendena | Bahubali #shortsvideo #manoramamusic](https://www.youtube.com/watch?v=9Xask1CDnO8)
+- [Non Stop Maramon Convention Songs | Malayalam Christian Songs | Kester | Sujatha | Shweta Mohan](https://www.youtube.com/watch?v=Mxz6Xgg1sZo)
+- [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kreupasanam  prayer and songs 6th](https://www.youtube.com/watch?v=7w_j6XL5I6k)
+- [Japamala 6th of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 6th of February 24](https://www.youtube.com/watch?v=lUV_5XuzoBI)
+- [ഇന്ന് ഫെബ്രുവരി 6 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukkam](https://www.youtube.com/watch?v=owqolgaol5k)
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Obmilc42ghI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
@@ -71,11 +71,11 @@
 <!--START_SECTION:waka-->
 
 ```txt
-From: 18 November 2023 - To: 25 November 2023
+From: 29 January 2024 - To: 05 February 2024
 
-Total Time: 28 hrs 8 mins
+Total Time: 26 hrs 49 mins
 
-Other   28 hrs 8 mins   ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰   100.00 %
+Other   26 hrs 49 mins  ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰   100.00 %
 ```
 
 <!--END_SECTION:waka-->
@@ -83,7 +83,7 @@ Other   28 hrs 8 mins   ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰�
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
 
 <!-- ADVICE:START -->
-<p align="center"><br><i>Don't eat non-snow-coloured snow.</i><br></p>
+<p align="center"><br><i>Enjoy a little nonsense now and then.</i><br></p>
 <!-- ADVICE:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=FF7F00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
@@ -190,7 +190,7 @@ https://user-images.githubusercontent.com/47528708/176845771-6ad8f1d2-8008-4f49-
 
 # Timeline
 
-[![Newyear.svg](https://dday-widget.minung.dev/widget?text=New%20Year%20&date=2024-01-01&startDate=2022-01-01&theme=theme1)](https://google.com)
+[![Newyear.svg](https://dday-widget.minung.dev/widget?text=New%20Year%20&date=2025-01-01&startDate=2022-01-01&theme=theme1)](https://google.com)
 [![Birthday.svg](https://dday-widget.minung.dev/widget?text=Birthday&date=2024-03-13)](https://dday-widget.minung.dev)
 
 <img alt="GitHub Future" src="https://github.com/ravana69/ravana69/blob/main/media/gifs/githubfuture.png"> </img>
@@ -216,7 +216,7 @@ https://user-images.githubusercontent.com/47528708/176845771-6ad8f1d2-8008-4f49-
 
 ![Live Time](https://raw.githubusercontent.com/ravana69/livetime/main/github-metrics.svg)
 
-![Calander of Punjab & Haryana High Court](https://raw.githubusercontent.com/ravana69/ravana69/main/images/calendar/Calender_2023_hc.jpg)
+![Calander of Punjab & Haryana High Court](https://raw.githubusercontent.com/ravana69/ravana69/main/images/calendar/Calender_2024_hc.jpg)
 
 # [🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈](https://ibb.co/album/qYnLQX)
 
